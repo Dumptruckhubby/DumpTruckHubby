@@ -1,4 +1,5 @@
-## 👋
+## <img width="200" height="161" alt="298" src="https://github.com/user-attachments/assets/1a69633d-f54b-44aa-9c43-0225677d97bc" />
+
 <img width="198" height="196" alt="pluey-deltarune" src="https://github.com/user-attachments/assets/ab844810-6f9a-4c78-bc7d-9e4ab1c21a2e" /> 
 
 Hi! im Dump! umm idk how to format this
